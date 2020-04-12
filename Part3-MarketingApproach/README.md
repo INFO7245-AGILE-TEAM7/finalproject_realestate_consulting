@@ -1,0 +1,1 @@
+# Real Estate Management Consulting - Palm Place Marketing Approach
